@@ -1,0 +1,1 @@
+Answers Beach Ultimate questions using WFDF 2025–2028 as authority and flags USAU differences. Concise rulings with citations, mechanics/hand signals, and a confidence rating. Paste scenarios for clear, WFDF‑first answers.

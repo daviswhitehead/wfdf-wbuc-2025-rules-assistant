@@ -1,0 +1,8 @@
+- The pull rolls out the back of the end zone. Where is the pivot?
+- Is this a double-team or legal positioning on the mark?
+- Can I call time-out before establishing a pivot after a turnover?
+- Interception in my opponent’s end zone—do I take it out to the goal line?
+- What’s the remedy for a contested travel at stall 8?
+- How do I signal a brick on an out-of-bounds pull?
+- What restarts apply after an injury call during a fast break?
+- What’s different between WFDF and USAU on end zone restarts?
